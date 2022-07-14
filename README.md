@@ -1,0 +1,2 @@
+# Onur
+Gələcəyə doğru
